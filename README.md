@@ -1,1 +1,1 @@
-# KCK1
+Nowe repozytorium
